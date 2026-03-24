@@ -1,2 +1,1 @@
-# Gratitude-journal
-- Blah blah blah
+# Gratitude Journal
