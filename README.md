@@ -8,3 +8,6 @@ Grateful for all the diverse and interesting class mates I have. I feel like I c
 
 3.29
 Grateful for good health and getting rest last night. 
+
+3.30
+Grateful for getting sleep and feeling well rested for class today. 
