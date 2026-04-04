@@ -14,3 +14,8 @@ Grateful for getting sleep and feeling well rested for class today.
 
 3.31
 Grateful for connecting with some new classmates today and refresh on some tips for receiving feedback
+
+4.1 (forgot)
+Thankful for feeling like I completed everything on time 
+
+4.4 Grateful for being able to finish my project and get feedback 
