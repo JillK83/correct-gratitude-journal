@@ -21,3 +21,5 @@ Thankful for feeling like I completed everything on time
 4.4 Grateful for being able to finish my project and get feedback 
 
 4.8 Grateful for having an l3 builder from another class give us some tips for setting up and organizing our files
+
+4.11 Grateful for finishing my project build and getting some feedback
