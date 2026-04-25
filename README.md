@@ -27,3 +27,4 @@ Thankful for feeling like I completed everything on time
 4.13 Grateful to be making good progress on my build and learning new tools and platforms
 4.14 Grateful for learning antigravity this week and others sharing some quick resources to get started. 
 4.15 Grateful to learn something new with claude today
+4.18 Thankful for making a quick pivot between last Thursday-Friday and building something new and learning in the process
