@@ -25,3 +25,4 @@ Thankful for feeling like I completed everything on time
 4.11 Grateful for finishing my project build and getting some feedback
 4.12 Grateful for warmer weather so I can bike to school 
 4.13 Grateful to be making good progress on my build and learning new tools and platforms
+4.14 Grateful for learning antigravity this week and others sharing some quick resources to get started. 
