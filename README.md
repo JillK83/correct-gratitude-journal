@@ -32,3 +32,4 @@ Thankful for feeling like I completed everything on time
 4.20 Diary catch up thankful for a new week
 4.21 Thankful for the fireside chat and new learnings
 4.22 Thankful for feeling caught up on my work this week
+4.25 Thankful for learning about debugging and testing
